@@ -7,9 +7,9 @@ Welcome to the definitive resource for Australian online casino enthusiasts in 2
 | Casino | Bonus Package | Rating |
 |--------|---------------|--------|
 | ⭐⭐⭐⭐⭐ [RocketPlay](https://rasrtp.com/rocketr1geek) | Exceptional 300% Match Bonus + Interactive Bonus Blast Wheel | 4.9/5 |
-| ⭐⭐⭐⭐½ [Ricky Casino](https://rasrtp.com/rickyr2geek) | Generous Package Up to $7,500 + 550 Free Spins | 4.8/5 |
-| ⭐⭐⭐⭐½ [Casinonic](https://rasrtp.com/casinonicr3geek) | Strategic $5,000 Bonus distributed across 10 Deposits | 4.8/5 |
-| ⭐⭐⭐⭐¼ [Dundee Slots](https://rasrtp.com/dundeer4geek) | Substantial $8,000 Bonus Package + 700 Free Spins | 4.7/5 |
+| ⭐⭐⭐⭐ [Ricky Casino](https://rasrtp.com/rickyr2geek) | Generous Package Up to $7,500 + 550 Free Spins | 4.8/5 |
+| ⭐⭐⭐⭐ [Casinonic](https://rasrtp.com/casinonicr3geek) | Strategic $5,000 Bonus distributed across 10 Deposits | 4.8/5 |
+| ⭐⭐⭐⭐ [Dundee Slots](https://rasrtp.com/dundeer4geek) | Substantial $8,000 Bonus Package + 700 Free Spins | 4.7/5 |
 | ⭐⭐⭐⭐ [Queenspins](https://rasrtp.com/queenspinsr5geek) | Balanced 100% Bonus up to $500 + 50 Free Spins | 4.6/5 |
 
 
